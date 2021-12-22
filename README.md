@@ -10,4 +10,4 @@
 
 - 💬 Ask me about Physics... I really rooted to that yet also not too good at Calculus 😂
 
-- ⚡ Fun fact: Not so amateur a mountain hiker 😁
+- ⚡ Fun fact: Not so an amateur mountain hiker 😁
