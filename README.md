@@ -1,4 +1,4 @@
-### `You will succeed in life if you find a job that is like a play`
+### `You can't stop the waves but you can learn to surf`
 
 ### I code for fun 💯
 
