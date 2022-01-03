@@ -8,6 +8,6 @@
 
 - 👯 I’m looking to collaborate on every Data Science project that can solve particular problem in society
 
-- 💬 MSc in Physics. Nice to talk those topics and brings it into fun's side.
+- 💬 MSc in Physics. Nice to talk those topics and brings them into fun's side.
 
 - ⚡ Fun fact: Not so an amateur mountain hiker 😁
