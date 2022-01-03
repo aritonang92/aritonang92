@@ -6,8 +6,8 @@
 
 - 🔭 I’m currently working on Machine Learning in general but I specified my interest into Computer Vision and Image Processing 
 
-- 👯 I’m looking to collaborate on every Data Science project that can solved particular problem in society
+- 👯 I’m looking to collaborate on every Data Science project that can solve particular problem in society
 
-- 💬 Ask me about Physics... I really rooted to that yet also not too good at Calculus 😂
+- 💬 MSc in Physics. Nice to talk those topics and brings it into fun's side.
 
 - ⚡ Fun fact: Not so an amateur mountain hiker 😁
